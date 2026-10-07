@@ -1,1 +1,0 @@
-# Laundryshop-system.com
